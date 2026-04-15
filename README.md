@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Premusking
 - 👀 I’m interested in connecting with like minds
-- 🌱 I’m currently learning data analysis 
+- 🌱 I’m a data analyst and a vibecoder
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me +2347037282609
 
